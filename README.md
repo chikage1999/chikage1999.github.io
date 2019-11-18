@@ -1,1 +1,0 @@
-# chikage1999.github.io
